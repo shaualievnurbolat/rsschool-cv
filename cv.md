@@ -13,6 +13,7 @@ I am ready to share more about myself with an emotional touch. In my soul, there
 Embarking on a journey in the world of information technology is my first step toward these changes. I see immense potential for self-improvement and success in this field. The world of IT is a realm of opportunities where innovation and creativity are highly valued. I am prepared to invest all my energy and effort into learning and mastering this domain.
 
 My dream is to find my calling, a vocation that brings not only material prosperity but also genuine satisfaction. I believe that each one of us can discover their place in this world and do what they truly love. I am committed to living life to the fullest and plan to utilize all the opportunities that the world of IT offers to achieve this goal.
+
 --- 
 ### Skills
 I don't have any skills
